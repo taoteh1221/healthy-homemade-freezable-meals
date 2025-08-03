@@ -12,11 +12,35 @@ A 10 QUART CROCK POT IS USED FOR ALL SLOW-COOKER RECIPES, AND IT FILLS IT QUITE 
 
 https://www.amazon.com/dp/B099WKZSBS
 
-DEFROST 90 SECONDS OUT OF FREEZER, DUMP INTO A 50oz BOWL TO MICROWAVE ~6 MINUTES:
+DEFROST IN MICROWAVE 90 SECONDS OUT OF FREEZER, DUMP INTO A 50oz BOWL TO MICROWAVE ~6 MORE MINUTES:
 
 https://www.amazon.com/dp/B09W22MY8V
 
 BOOM! QUICK, EASY, HEALTHY. HAPPY CODING / EATING! :)
+
+=======================================================================================================================
+French Fries
+=======================================================================================================================
+
+1 russet potato = 1 serving
+
+POTATOES MUST BE RUSSET, FOR BEST FLAVOR!
+
+Cut potato with a french fry cutter:
+
+https://www.amazon.com/dp/B0B3CPQS2R
+
+https://www.amazon.com/dp/B0CPPG7LFR
+
+SOAK / WASH fries in a bowl (completely cover the fries with water), for 15 minutes (VERY IMPORTANT STEP!)
+
+Drain water from bowl, spray fries lightly with extra virgin olive oil, and mix up fries to evenly coat
+
+Sprinkle a little bit of Granulated Garlic on fries, and mix well again to evenly coat
+
+Put in air fryer OR oven (with a broiler pan), at 300 degrees
+
+Cook for ~10 minutes, stir fries around a bit, cook another ~10 minutes
 
 =======================================================================================================================
 Fish / Chicken Breading
@@ -24,9 +48,9 @@ Fish / Chicken Breading
 
 PER-POUND OF MEAT:
 
-1/4 cup plain bread crumbs 
-1/2 Tbsp paprika 
-1/2 Tbsp Granulated onions 
+1/4 cup plain Bread Crumbs 
+1/2 Tbsp Paprika 
+1/2 Tbsp Granulated Garlic 
 
 -Mix all seasonings with a wisk, in a bowl
 
@@ -34,7 +58,9 @@ PER-POUND OF MEAT:
 
 -Throw meat and breading into a breader ( https://www.amazon.com/dp/B000IN0KUO ), OR bread meat manually
 
--Grease broiling pan lightly with extra virgin olive oil, put meat on the pan, and broil 15-30 minutes (depends on oven size)
+-Grease broiling pan lightly with extra virgin olive oil, put meat on the pan, and broil chicken 15 minutes (10 MINUTES FOR FISH...depends on oven size)
+
+OPTIONALLY: Use Air Fryer instead
 
 =======================================================================================================================
 Bannana Bread
@@ -99,7 +125,7 @@ Corn Bread
 Rice with Diced Tomatoes / Onions
 =======================================================================================================================
 
-Lightly oil up bottom of large skillet, with extra virgin olive oil
+Lightly oil up bottom of large pot, with extra virgin olive oil
 
 Dump 1 CAN (14.5 oz) of diced tomatoes into the pot
 
