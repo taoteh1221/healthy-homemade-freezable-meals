@@ -76,7 +76,7 @@ OPTIONALLY: Use Air Fryer instead
 Bannana Bread
 =======================================================================================================================
 
-2 cups unbleached flour
+2 cups unbleached OR whole wheat flour
 
 1/2 cup oatmeal flour
 
@@ -113,7 +113,7 @@ Bannana Bread
 Corn Bread
 =======================================================================================================================
 
-1 and 1/2 cup unbleached flour
+1 and 1/2 cup unbleached OR whole wheat flour
 
 1 and 1/2 cup cornmeal
 
@@ -301,7 +301,7 @@ Chicken and Rice Casserole
 =======================================================================================================================
 
 
-Chopped boneless / skinless chicken breast - 2.5 lbs
+2 pounds / breasts of chicken, chopped
 
 Rice - 1.5 cups
 
