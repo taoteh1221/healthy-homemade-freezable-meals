@@ -6,15 +6,19 @@ Healthy tech-friendly meals documentation by Mike Kilday: Mike@DragonFrugal.com 
 
 IMPORTANT NOTES:
 
-A 10 QUART CROCK POT IS USED FOR ALL SLOW-COOKER RECIPES, AND IT FILLS IT QUITE COMPLETELY (WITH THE RECIPE AMOUNTS LISTED)!
+A 10 QUART CROCK POT IS USED FOR ALL SLOW-COOKER RECIPES, AND IT FILLS IT QUITE COMPLETELY (WITH THE RECIPE AMOUNTS LISTED):
 
-500ML PLASTIC CONTAINERS ARE IDEAL FOR STACKING THESE MEALS IN THE FREEZER, FOR QUICK / HEALTHY MEALS, EVEN WHEN YOU ARE BUSY WRITING COMPUTER CODE:
+https://www.amazon.com/dp/B07DKXNW2M
+
+500ML PLASTIC CONTAINERS (15 of them) ARE IDEAL FOR STACKING THESE MEALS IN THE FREEZER, FOR QUICK / HEALTHY MEALS, EVEN WHEN YOU ARE BUSY WRITING COMPUTER CODE:
 
 https://www.amazon.com/dp/B099WKZSBS
 
-DEFROST IN MICROWAVE 90 SECONDS OUT OF FREEZER, DUMP INTO A 50oz BOWL TO MICROWAVE ~6 MORE MINUTES:
+DEFROST IN MICROWAVE 90 SECONDS OUT OF FREEZER, DUMP INTO A 50-60 ounce BOWL TO MICROWAVE ~6 MORE MINUTES:
 
 https://www.amazon.com/dp/B09W22MY8V
+
+https://www.amazon.com/dp/B0D1QP9DRR
 
 BOOM! QUICK, EASY, HEALTHY. HAPPY CODING / EATING! :)
 
@@ -56,9 +60,15 @@ PER-POUND OF MEAT:
 
 -Cut up your meat into large bite-sized chunks
 
+-Rinse meat with water, then dip in extra virgin olive oil
+
 -Throw meat and breading into a breader ( https://www.amazon.com/dp/B000IN0KUO ), OR bread meat manually
 
--Grease broiling pan lightly with extra virgin olive oil, put meat on the pan, and broil chicken 15 minutes (10 MINUTES FOR FISH...depends on oven size)
+-Grease broiling pan lightly with extra virgin olive oil, put meat on the pan, and broil:
+
+Chicken = 350 degrees for 15 minutes (depends on oven size)
+
+Fish = 400 degrees for 10 minutes (depends on oven size)
 
 OPTIONALLY: Use Air Fryer instead
 
@@ -158,6 +168,8 @@ Mix granulated onions with rice, then pour v8 juice over rice in a large bowl, m
 =======================================================================================================================
 Chicken Sausage Meatballs, OR Seasoned Large Bite-Sized Chunks
 =======================================================================================================================
+
+MODIFIED FROM: https://oldworldgardenfarms.com/2019/01/15/ground-chicken-sausage-recipe/
 
 3 breasts / pounds chicken
 
