@@ -169,27 +169,27 @@ Mix granulated onions with rice, then pour v8 juice over rice in a large bowl, m
 Chicken Sausage Meatballs, OR Seasoned Large Bite-Sized Chunks
 =======================================================================================================================
 
-MODIFIED FROM: https://oldworldgardenfarms.com/2019/01/15/ground-chicken-sausage-recipe/
+MODIFIED FROM (thanks for the awesome recipe!): https://oldworldgardenfarms.com/2019/01/15/ground-chicken-sausage-recipe/
 
 3 breasts / pounds chicken
 
-1 tbsp granulated garlic
+1 and 1/2 tbsp granulated garlic
 
-1 tbsp granulated onion
+1 and 1/2 tbsp granulated onion
 
-2 tbsp chili powder
+3 tbsp chili powder
 
-2 tbsp paprika
+3 tbsp paprika
 
-2 tsp ground cumin
+3 tsp ground cumin
 
-1 tsp dried oregano
+1 and 1/2 tsp dried oregano
 
-1 tsp dried thyme
+1 and 1/2 tsp dried thyme
 
-1 tsp crushed red pepper
+1 and 1/2 tsp crushed red pepper
 
-1 tsp ground black pepper
+1 and 1/2 tsp ground black pepper
 
 -Cut chicken into large bite-sized chunks, put in LARGE bowl
 
@@ -229,7 +229,7 @@ Italian Sausage and Pasta
 
 32oz frozen chopped spinach (2x 16oz packages)
 
-OPTIONAL - 16oz frozen corn
+OPTIONAL - 16oz frozen corn (SKIP 1 BAG OF SPINACH ABOVE, OR IT MAY NOT FIT IN CROCKPOT!)
 
 30oz can of diced tomatoes (2x 15oz cans)
 
