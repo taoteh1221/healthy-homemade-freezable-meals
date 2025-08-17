@@ -229,7 +229,7 @@ Italian Sausage and Pasta
 
 32oz frozen chopped spinach (2x 16oz packages)
 
-OPTIONAL - 16oz frozen corn (SKIP 1 BAG OF SPINACH ABOVE, OR IT MAY NOT FIT IN CROCKPOT!)
+OPTIONAL - 16oz frozen corn OR diced carrots (SKIP 1 BAG OF SPINACH ABOVE, OR IT MAY NOT FIT IN CROCKPOT!)
 
 30oz can of diced tomatoes (2x 15oz cans)
 
