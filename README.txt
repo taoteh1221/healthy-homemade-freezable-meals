@@ -117,12 +117,12 @@ Corn Bread
 
 1 and 1/2 cup cornmeal
 
-1/3 cup sugar
+1/4 cup sugar
 
 4 teaspoons baking powder
 
 1 teaspoon salt
-
+             
 1 and 3/4 cup fat free milk
 
 1/3 cup extra virgin olive oil
