@@ -132,6 +132,20 @@ Corn Bread
 -Grease pan lightly with extra virgin olive oil, pour in evenly / flatten, and bake 40 minutes @ 300 degrees
 
 =======================================================================================================================
+Small Serving of Quick Rice with Seasonings
+=======================================================================================================================
+
+1/4 cup rice
+
+1/2 cup water
+
+1/2 tbsp granulated onions
+
+11.5oz can of low sodium v8 juice
+
+Mix granulated onions with rice, then pour v8 juice over rice in a large bowl, microwave ~12 minutes
+
+=======================================================================================================================
 Rice with Diced Tomatoes / Onions
 =======================================================================================================================
 
@@ -152,18 +166,54 @@ Add 3 and 2/3 cups of water into pot, THEN add 2 cups of rice into pot
 Stir well every minute or two (still on medium-high heat), until the water is absorbed by the rice completely
 
 =======================================================================================================================
-Small Serving of Quick Rice with Seasonings
+Chicken and Stuffing Casserole
 =======================================================================================================================
 
-1/4 cup rice
+MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-pot-chicken-stuffing-casserole/
 
-1/4 cup water
+1/4 cup extra virgin olive oil (to grease up bottom / sides of crockpot)
 
-1/2 tbsp granulated onions
+4 pounds / breasts of chicken
 
-11.5oz can of low sodium v8 juice
+2 MEDIUM onions chopped
 
-Mix granulated onions with rice, then pour v8 juice over rice in a large bowl, microwave ~12 minutes
+1 and 1/2 cups rice
+
+24oz frozen cut green beans, OR frozen peas and carrots (OR one of each)
+
+8oz light sour cream
+
+1 cup fat free milk
+
+16oz cup low sodium chicken broth (OR SUBSTITUTE WITH 2 CUPS WATER)
+
+8 cups water (add more, IF too thick to stir well)
+
+12oz low sodium stuffing mix
+
+4 slices of whole weat bread, CUT INTO CUBES
+
+1/3 cup whole wheat flour
+
+1/3 cup cornmeal
+
+1/3 cup granulated onions
+
+1 and 1/2 tsp poultry seasoning
+
+-Oil bottom of crock pot with the extra virgin olive oil, and evenly layer LARGE DICED chicken pices across bottom
+
+-Mix together cubed bread and stuffing mix, then evenly layer over the chicken
+
+-Mix flour / cornmeal / chicken broth / milk / sour cream / granulated onions / poultry seasoning in a bowl, then evenly pour over stuffing
+
+-Evenly layer veggies and onions on top of everything
+
+-Add the water, and stir well until fully mixed
+
+-Cook on high for 4 hours, stirring well hourly or more (to evenly cook the rice, which can settle to bottom)
+
+-OPTIONALLY, add fresh-ground rainbow pepper corns to your desired taste (per serving)
 
 =======================================================================================================================
 Chicken Sausage Meatballs, OR Seasoned Large Bite-Sized Chunks
@@ -201,7 +251,7 @@ MODIFIED FROM (thanks for the awesome recipe!): https://oldworldgardenfarms.com/
 
 -Grind chicken mix in food processor (split into batches if required), until fully ground up
 
--Refrigerate overnight (VERY IMPORTANT STEP!)
+-Refrigerate overnight BEFORE COOKING (VERY IMPORTANT STEP!)
 
 -Grease broiler pan lightly with extra virgin olive oil
 
@@ -211,9 +261,11 @@ MODIFIED FROM (thanks for the awesome recipe!): https://oldworldgardenfarms.com/
 
 --------- L A R G E   B I T E   S I Z E D   C H U N K S ---------
 
+NOTE: COMPARED TO MIXING INTO MEATBALLS ABOVE, THIS TASTES HOT (THE MEATBALLS ABOVE ARE *NOT* HOT, IF YOU REFRIGERATE OVERNIGHT BEFORE COOKING). YOU MAY WANT TO TONE DOWN THE HOT SPICES, OR ADD 1/8 CUP COOKED RICE PER-SERVING, IF YOU DON'T LIKE THE HOTNESS OF LEAVING THE CHICKEN AS BITE-SIZED CHUNKS.
+
 -Lightly oil up bottom of large skillet, with extra virgin olive oil
 
--Brown chicken over medium heat in skillet, OR FULLY COOK IF **NOT** ADDING TO A CROCKPOT RECIPE AFTERWARDS
+-Brown chicken over medium heat in skillet (to cook the spices into the chicken), OR FULLY COOK IF **NOT** ADDING TO A CROCKPOT RECIPE AFTERWARDS
 
 =======================================================================================================================
 Italian Sausage and Pasta
@@ -241,7 +293,7 @@ OPTIONAL - 16oz frozen corn OR diced carrots (SKIP 1 BAG OF SPINACH ABOVE, OR IT
 
 1/4 cup granulated onions
 
-5 cups water
+5 cups water (add more, IF too thick to stir well)
 
 -Pour tomato sauce and water in crockpot, and mix in the granulated onions / garlic
 
@@ -257,7 +309,7 @@ Turkey / Chicken Chili
 
 2 tbsp extra virgin olive oil
 
-2 pounds / breasts ground OR cut up turkey / chicken
+3 pounds / breasts ground OR cut up turkey / chicken
 
 24oz Tomato Sauce
 
@@ -281,7 +333,7 @@ Turkey / Chicken Chili
 
 1/4 cup granulated onions
 
-3 cups water
+3 cups water (add more, IF too thick to stir well)
 
 ----
 
@@ -295,77 +347,7 @@ Turkey / Chicken Chili
 
 -Cook on high for 4 hours, stirring WELL (to evenly cook the rice, which can settle to bottom) every ~30 minutes ideally
 
-
-=======================================================================================================================
-Chicken and Rice Casserole
-=======================================================================================================================
-
-
-2 pounds / breasts of chicken, chopped
-
-Rice - 1.5 cups
-
-Cornmeal - 1.5 cups
-
-Canned mushrooms - 8oz
-
-Frozen peas and carrots - 16oz
-
-Green beans - 16oz
-
-Frozen chopped onions - 12oz
-
-98% Fat Free Condensed Cream of Mushroom Soup - 10.5oz
-
-Low sodium chicken broth - 48oz (OR SUBSTITUTE WITH 48OZ WATER)
-
-Garlic and herb spices - 1/2 cup
-
-Granulated onions - 1/2 cup
-
-Bread flour - 3oz
-
-6 cups of water
-
-----
-
--Mix garlic and herb spices / bread flour together, and stir into crock pot AFTER stirring everything else in first
-
--Cook on high for 4 hours, stirring WELL (to evenly cook the rice, which can settle to bottom) every 30 minutes
-
-OPTIONALLY WHEN SERVING: Crumble some tortilla chips over each SERVED PORTION, and mix into the casserole (this hides the veggie taste WELL)
-
-
-=======================================================================================================================
-Chicken Stew
-=======================================================================================================================
-
-
-2 pounds / breasts of chicken, chopped
-
-Tomato Sauce - 24oz
-
-Quartered potatoes - 43oz (~5 potatoes)
-
-Frozen cut green beans - 12oz
-
-Frozen Super Sweet corn - 12oz
-
-Garlic and herb spices - 5 tbsp
-
-Bread flour - 3oz
-
-3 cups of water
-
-----
-
--Boil (pre-cook) cut potatoes beforehand (or they won't be fully cooked in crock pot)
-
--Put chicken, potatoes, green beans, corn, and water in crock pot
-
--Mix garlic and herb spices / bread flour together, and stir into crock pot
-
--Cook on high for 4 hours, stirring hourly
+OPTIONALLY WHEN SERVING: Crumble some tortilla chips over each SERVED PORTION, and mix into the chili
 
 
 ========================================================================================================================
