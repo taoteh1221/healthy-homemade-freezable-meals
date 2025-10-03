@@ -191,7 +191,7 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 12oz low sodium stuffing mix
 
-4 slices of whole weat bread, CUT INTO CUBES
+4 slices of whole wheat bread, CUT INTO CUBES
 
 1/3 cup whole wheat flour
 
