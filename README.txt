@@ -173,19 +173,19 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 1/4 cup extra virgin olive oil (to grease up bottom / sides of crockpot)
 
-4 pounds / breasts of chicken
+4 pounds / breasts of chicken, diced into large / bite-sized pieces
 
 2 MEDIUM onions chopped
 
 1 and 1/2 cups rice
 
-24oz frozen cut green beans, OR frozen peas and carrots (OR one of each)
+24oz frozen cut green beans, OR frozen peas and carrots (OR 12oz of each)
 
 8oz light sour cream
 
 1 cup fat free milk
 
-16oz cup low sodium chicken broth (OR SUBSTITUTE WITH 2 CUPS WATER)
+16oz low sodium chicken broth (OR SUBSTITUTE WITH 2 CUPS WATER)
 
 8 cups water (add more, IF too thick to stir well)
 
@@ -201,7 +201,7 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 1 and 1/2 tsp poultry seasoning
 
--Oil bottom of crock pot with the extra virgin olive oil, and evenly layer LARGE DICED chicken pices across bottom
+-Oil bottom / sides of crock pot with the extra virgin olive oil, and evenly layer LARGE DICED chicken pices across bottom
 
 -Mix together cubed bread and stuffing mix, then evenly layer over the chicken
 
