@@ -207,7 +207,7 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 -Mix flour / cornmeal / chicken broth / milk / sour cream / granulated onions / poultry seasoning in a bowl, then evenly pour over stuffing
 
--Evenly layer veggies and onions on top of everything
+-Evenly layer the veggies on top of everything
 
 -Add the water, and stir well until fully mixed
 
@@ -299,7 +299,11 @@ OPTIONAL - 16oz frozen corn OR diced carrots (SKIP 1 BAG OF SPINACH ABOVE, OR IT
 
 -Add uncooked cavatappi into the crockpot
 
--Add chopped onions / green peppers / spinach / corn / diced tomatoes
+-Add cottage cheese to the crockpot
+
+-Add chicken to the crockpot
+
+-Add the veggies, and stir everything well until fully mixed
 
 -Cook 4 hours on high. IF pasta still is NOT fully cooked, cook for an additional 30+ minutes / until pasta until fully cooked.
 
