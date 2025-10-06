@@ -191,7 +191,7 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 12oz low sodium stuffing mix
 
-4 slices of whole wheat bread, CUT INTO CUBES
+4 slices of whole wheat bread
 
 1/3 cup whole wheat flour
 
@@ -200,6 +200,8 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 1/3 cup granulated onions
 
 1 and 1/2 tsp poultry seasoning
+
+-Cube the sliced bread, season with granulated garlic, and bake in oven / air fryer @ 300 degrees for 15 minutes
 
 -Oil bottom / sides of crock pot with the extra virgin olive oil, and evenly layer LARGE DICED chicken pices across bottom
 
