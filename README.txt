@@ -171,47 +171,49 @@ Chicken and Stuffing Casserole
 
 MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-pot-chicken-stuffing-casserole/
 
+12oz low sodium stuffing mix, OR 12 slices of whole wheat bread (cubed / seasoned / baked), OR half of each
+
+30oz russet potatoes, cut into quarters / eights, precooked by boiling 15 minutes
+
+32oz frozen cut green beans, OR frozen peas and carrots (2x 16oz frozen bags)
+
 1/4 cup extra virgin olive oil (to grease up bottom / sides of crockpot)
 
 4 pounds / breasts of chicken, diced into large / bite-sized pieces
 
 2 MEDIUM onions chopped
 
-1 and 1/2 cups rice
-
-24oz frozen cut green beans, OR frozen peas and carrots (OR 12oz of each)
-
 8oz light sour cream
 
 1 cup fat free milk
 
-16oz low sodium chicken broth (OR SUBSTITUTE WITH 2 CUPS WATER)
+1 cup rice
 
-8 cups water (add more, IF too thick to stir well)
+1 and 1/2 tsp poultry seasoning
 
-12oz low sodium stuffing mix
-
-4 slices of whole wheat bread
+1/3 cup granulated onions
 
 1/3 cup whole wheat flour
 
 1/3 cup cornmeal
 
-1/3 cup granulated onions
+16oz low sodium chicken broth (OR SUBSTITUTE WITH 2 CUPS WATER)
 
-1 and 1/2 tsp poultry seasoning
+6 to 8 cups water (add more, IF too thick to stir well)
 
 -Cube the sliced bread, season with granulated garlic, and bake in oven / air fryer @ 300 degrees for 15 minutes
 
--Oil bottom / sides of crock pot with the extra virgin olive oil, and evenly layer LARGE DICED chicken pices across bottom
+-Oil bottom / sides of crock pot with the extra virgin olive oil
 
--Mix together cubed bread and stuffing mix, then evenly layer over the chicken
+-Mix dry ingredients / spices / chicken broth / milk / sour cream in a bowl, then add to crockpot
 
--Mix flour / cornmeal / chicken broth / milk / sour cream / granulated onions / poultry seasoning in a bowl, then evenly pour over stuffing
+-Evenly layer LARGE DICED chicken pices across bottom
+
+-Mix together cubed bread / stuffing mix, then evenly layer over the chicken
 
 -Evenly layer the veggies on top of everything
 
--Add the water, and stir well until fully mixed
+-Add the water as-needed, and stir well until fully mixed
 
 -Cook on high for 4 hours, stirring well hourly or more (to evenly cook the rice, which can settle to bottom)
 
