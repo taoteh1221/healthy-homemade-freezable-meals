@@ -189,9 +189,9 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 1 cup rice
 
-1 and 1/2 tsp poultry seasoning
+2 tsp poultry seasoning
 
-1/3 cup granulated onions
+1/3 cup granulated garlic
 
 1/3 cup whole wheat flour
 
@@ -205,7 +205,7 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 -Oil bottom / sides of crock pot with the extra virgin olive oil
 
--Mix dry ingredients / spices / chicken broth / milk / sour cream in a bowl, then add to crockpot
+-Mix dry ingredients / spices / milk / sour cream in a bowl, then add to crockpot
 
 -Evenly layer LARGE DICED chicken pices across bottom
 
@@ -213,7 +213,7 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 -Evenly layer the veggies on top of everything
 
--Add the water as-needed, and stir well until fully mixed
+-Add the chicken broth and water as-needed, and stir well until fully mixed
 
 -Cook on high for 4 hours, stirring well hourly or more (to evenly cook the rice, which can settle to bottom)
 
