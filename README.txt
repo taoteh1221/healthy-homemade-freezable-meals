@@ -187,8 +187,6 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 1 cup fat free milk
 
-1 cup rice
-
 2 tsp poultry seasoning
 
 1/3 cup granulated garlic
@@ -200,6 +198,8 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 16oz low sodium chicken broth (OR SUBSTITUTE WITH 2 CUPS WATER)
 
 6 to 8 cups water (add more, IF too thick to stir well)
+
+OPTIONAL: 1 cup rice (IF you want to slightly thicken everything)
 
 -Cube the sliced bread, season with granulated garlic, and bake in oven / air fryer @ 300 degrees for 15 minutes
 
