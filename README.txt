@@ -223,33 +223,36 @@ OPTIONAL: 1 cup rice (IF you want to slightly thicken everything)
 Chicken Sausage Meatballs, OR Seasoned Large Bite-Sized Chunks
 =======================================================================================================================
 
-MODIFIED FROM (thanks for the awesome recipe!): https://oldworldgardenfarms.com/2019/01/15/ground-chicken-sausage-recipe/
+MODIFIED FROM (thanks so much for the awesome base recipe!):
+https://oldworldgardenfarms.com/2019/01/15/ground-chicken-sausage-recipe/
 
-3 breasts / pounds chicken
+4 breasts / pounds chicken
 
-1 and 1/2 tbsp granulated garlic
+2 tbsp granulated garlic
 
-1 and 1/2 tbsp granulated onion
+3/4 cup salt free taco seasoning
 
-3 tbsp chili powder
+1/2 cup chili powder
 
-3 tbsp paprika
+1/3 cup granulated onions
 
-3 tsp ground cumin
+1 tbsp paprika
 
-1 and 1/2 tsp dried oregano
+1 tbsp ground cumin
 
-1 and 1/2 tsp dried thyme
+2 tsp dried oregano
 
-1 and 1/2 tsp crushed red pepper
+2 tsp dried thyme
 
-1 and 1/2 tsp ground black pepper
+2 tsp ground black pepper
+
+1 tsp crushed red pepper
 
 -Cut chicken into large bite-sized chunks, put in LARGE bowl
 
--Mix seasonings separately in SMALL bowl
+-Mix seasonings separately in a bowl
 
--Mix seasoning well into LARGE bowl with chicken
+-Add mixed seasonings into the food processor with chicken chunks
 
 --------- M E A T B A L L S -------------------------------------
 
@@ -259,23 +262,21 @@ MODIFIED FROM (thanks for the awesome recipe!): https://oldworldgardenfarms.com/
 
 -Grease broiler pan lightly with extra virgin olive oil
 
--Make meatballs 1oz per-meatball (with food scale), place on broiler pan
+-Make meatballs 1.5oz per-meatball (with food scale), place on broiler pan
 
 -PREHEAT OVEN at 350 degrees, and broil for 15-20 minutes.
 
---------- L A R G E   B I T E   S I Z E D   C H U N K S ---------
-
-NOTE: COMPARED TO MIXING INTO MEATBALLS ABOVE, THIS TASTES HOT (THE MEATBALLS ABOVE ARE *NOT* HOT, IF YOU REFRIGERATE OVERNIGHT BEFORE COOKING). YOU MAY WANT TO TONE DOWN THE HOT SPICES, OR ADD 1/8 CUP COOKED RICE PER-SERVING, IF YOU DON'T LIKE THE HOTNESS OF LEAVING THE CHICKEN AS BITE-SIZED CHUNKS.
+--------- C R U M B L E D  /  B R O W N E D  I N  S K I L L E T ---------
 
 -Lightly oil up bottom of large skillet, with extra virgin olive oil
 
--Brown chicken over medium heat in skillet (to cook the spices into the chicken), OR FULLY COOK IF **NOT** ADDING TO A CROCKPOT RECIPE AFTERWARDS
+-Brown ground chicken over medium heat in skillet, while chopping it up with a spatula (to avoid chunks clumping together), AND FULLY COOK IF **NOT** ADDING TO A CROCKPOT RECIPE AFTERWARDS (otherwise just brown it, as it will fully cook in crockpot)
 
 =======================================================================================================================
 Italian Sausage and Pasta
 =======================================================================================================================
 
-3 breasts / pounds PRE-COOKED (broiled) chicken sausage meatballs, OR SEASONED LARGE BITE-SIZED CHUNKS (either way tastes GREAT...see recipe above)
+4 breasts / pounds PRE-COOKED (broiled) chicken sausage meatballs, OR SEASONED LARGE BITE-SIZED CHUNKS (either way tastes GREAT...see recipe above)
 
 1 LARGE onion chopped
 
@@ -317,7 +318,7 @@ Turkey / Chicken Chili
 
 2 tbsp extra virgin olive oil
 
-3 pounds / breasts ground OR cut up turkey / chicken
+4 pounds / breasts ground OR cut up turkey / chicken
 
 24oz Tomato Sauce
 
@@ -331,25 +332,25 @@ Turkey / Chicken Chili
 
 3x 15oz cans red kidney beans
 
-1 cup of rice
+1 and 1/2 cups of rice
 
-1 cup of cornmeal
+1 and 1/2 cups of cornmeal
 
-2/3 cup salt free taco seasoning
+3/4 cup salt free taco seasoning
 
-1/3 cup chili powder
+1/2 cup chili powder
 
-1/4 cup granulated onions
+1/3 cup granulated onions
 
-3 cups water (add more, IF too thick to stir well)
+6 cups water (add more, IF too thick to stir well)
 
 ----
 
--Mix a jar of tomato sauce with the chili powder and granulated onions seperately. 
+-Mix the taco seasoning, chili powder, and granulated onions
 
 -Lightly oil up bottom of large skillet, with extra virgin olive oil
 
--Mix the taco seasoning into the meat, then brown in skillet with the chopped onions / green peppers
+-Add the mixed seasoning into the meat (IF grinding your own meat, add it while grinding), then brown in skillet (with the chopped onions / green peppers, if desired)
 
 -Add everything into crock pot
 
