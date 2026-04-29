@@ -171,7 +171,7 @@ Chicken and Stuffing Casserole
 
 MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-pot-chicken-stuffing-casserole/
 
-12oz low sodium stuffing mix, OR 12 slices of whole wheat bread (cubed / seasoned / baked), OR half of each
+18oz low sodium stuffing mix, OR 18 slices of whole wheat bread (cubed / seasoned / baked), OR half of each
 
 30oz russet potatoes, cut into quarters / eights, precooked by boiling 15 minutes
 
@@ -187,17 +187,13 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 1 cup fat free milk
 
-2 tsp poultry seasoning
+4 tsp poultry seasoning
 
 1/3 cup granulated garlic
 
-1/3 cup whole wheat flour
-
-1/3 cup cornmeal
-
 16oz low sodium chicken broth (OR SUBSTITUTE WITH 2 CUPS WATER)
 
-6 to 8 cups water (add more, IF too thick to stir well)
+8 to 10 cups water (add more, IF too thick to stir well)
 
 OPTIONAL: 1 cup rice (IF you want to slightly thicken everything)
 
@@ -228,13 +224,13 @@ https://oldworldgardenfarms.com/2019/01/15/ground-chicken-sausage-recipe/
 
 4 breasts / pounds chicken
 
-2 tbsp granulated garlic
+4 tbsp granulated garlic
 
-3/4 cup salt free taco seasoning
+1/2 cup salt free taco seasoning
 
 1/2 cup chili powder
 
-1/3 cup granulated onions
+1/4 cup granulated onions
 
 1 tbsp paprika
 
@@ -262,7 +258,7 @@ https://oldworldgardenfarms.com/2019/01/15/ground-chicken-sausage-recipe/
 
 -Grease broiler pan lightly with extra virgin olive oil
 
--Make meatballs 1.5oz per-meatball (with food scale), place on broiler pan
+-Make meatballs 1oz per-meatball (with food scale), place on broiler pan
 
 -PREHEAT OVEN at 350 degrees, and broil for 15-20 minutes.
 
@@ -300,13 +296,13 @@ OPTIONAL - 16oz frozen corn OR diced carrots (SKIP 1 BAG OF SPINACH ABOVE, OR IT
 
 5 cups water (add more, IF too thick to stir well)
 
+-DO NOT add chicken meatballs to the crockpot, as they will NOT fit with all the other ingredients (add ~4oz of meatballs per-serving AFTER [when portioning out])
+
 -Pour tomato sauce and water in crockpot, and mix in the granulated onions / garlic
 
 -Add uncooked cavatappi into the crockpot
 
 -Add cottage cheese to the crockpot
-
--Add chicken to the crockpot
 
 -Add the veggies, and stir everything well until fully mixed
 
