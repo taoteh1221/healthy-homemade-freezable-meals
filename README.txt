@@ -6,7 +6,7 @@ Healthy tech-friendly meals documentation by Mike Kilday: Mike@DragonFrugal.com 
 
 IMPORTANT NOTES:
 
-A 10 QUART CROCK POT IS USED FOR ALL SLOW-COOKER RECIPES, AND IT FILLS IT QUITE COMPLETELY (WITH THE RECIPE AMOUNTS LISTED):
+A 10 QUART CROCK POT IS USED FOR ALL THE SLOW-COOKER RECIPES, AND IT FILLS IT QUITE COMPLETELY (WITH THE RECIPE AMOUNTS LISTED):
 
 https://www.amazon.com/dp/B07DKXNW2M
 
@@ -14,7 +14,7 @@ https://www.amazon.com/dp/B07DKXNW2M
 
 https://www.amazon.com/dp/B099WKZSBS
 
-DEFROST IN MICROWAVE 90 SECONDS OUT OF FREEZER, DUMP INTO A 50-60 ounce BOWL TO MICROWAVE ~6 MORE MINUTES:
+DEFROST ABOVE-MENTIONED PLASTIC CONTAINERS IN MICROWAVE 90 SECONDS OUT OF THE FREEZER (NO MORE OR THEY WILL GET RUINED!), DUMP INTO A 50-60 ounce BOWL TO MICROWAVE ~6 MORE MINUTES:
 
 https://www.amazon.com/dp/B09W22MY8V
 
@@ -213,7 +213,7 @@ OPTIONAL: 1 cup rice (IF you want to slightly thicken everything)
 
 -Cook on high for 4 hours, stirring well hourly or more (to evenly cook the rice, which can settle to bottom)
 
--OPTIONALLY, add fresh-ground rainbow pepper corns to your desired taste (per serving)
+-Serve ~2 cups per serving in a bowl, crumble 1oz of low sodium tortilla chips over the meal, and mix into it
 
 =======================================================================================================================
 Chicken Sausage Meatballs, OR Seasoned Large Bite-Sized Chunks
@@ -308,6 +308,8 @@ OPTIONAL - 16oz frozen corn OR diced carrots (SKIP 1 BAG OF SPINACH ABOVE, OR IT
 
 -Cook 4 hours on high. IF pasta still is NOT fully cooked, cook for an additional 30+ minutes / until pasta until fully cooked.
 
+-Serve ~2 cups per serving in a bowl
+
 =======================================================================================================================
 Turkey / Chicken Chili
 =======================================================================================================================
@@ -352,8 +354,42 @@ Turkey / Chicken Chili
 
 -Cook on high for 4 hours, stirring WELL (to evenly cook the rice, which can settle to bottom) every ~30 minutes ideally
 
-OPTIONALLY WHEN SERVING: Crumble some tortilla chips over each SERVED PORTION, and mix into the chili
+-Serve ~2 cups per serving in a bowl, crumble 1oz of low sodium tortilla chips over the meal, and mix into it
 
+=======================================================================================================================
+Chicken Fried Rice
+=======================================================================================================================
+
+MODIFIED FROM (thanks so much for the awesome base recipe!):
+https://www.cookingclassy.com/chicken-fried-rice/
+
+2 tbsp extra virgin olive oil
+
+4 tsp toasted sesame oil
+
+4 cups of pre-cooked rice (preferabbly ~1 day refrigerated beforehand)
+
+1 pound / chicken breast, diced
+
+12oz bag mixed frozen peas and carrots
+
+1/4 cup chopped onions
+
+4 scallions chopped
+
+2.5 tsp minced garlic
+
+2 scrambled eggs
+
+4 tbsp coconut aminos (low sodium / non-soy alternative to soy sauce)
+
+-Add 1 tbsp olive oil / 2 tsp sesame oil to skillet / wok with medium heat, saute the cubed chicken until fully cooked, then remove / set chicken aside
+
+-Add remaining 1 tbsp olive oil / 2 tsp sesame oil to skillet / wok with medium heat, saute the scallions / onions / minced garlic / peas / carrots for 2 minutes, push to side of pan, and fully cook the scrambled eggs next to the veggies
+
+-Put the chicken back in the skillet / wok, add the rice and coconut aminos too, then mix everything together for a minute or two
+
+Above recipe amounts makes ~4 servings. Double / triple these portions, if you want to store multiple meals in the freezer.
 
 ========================================================================================================================
 
