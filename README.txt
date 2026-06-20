@@ -363,33 +363,37 @@ Chicken Fried Rice
 MODIFIED FROM (thanks so much for the awesome base recipe!):
 https://www.cookingclassy.com/chicken-fried-rice/
 
-2 tbsp extra virgin olive oil
+IMPORTANT NOTE: Below ingredient AMOUNTS require a VERY LARGE saute pan / wok!
 
-4 tsp toasted sesame oil
+4 tbsp extra virgin olive oil (enough to fully coat inside the skillet / wok)
 
-4 cups of pre-cooked rice (preferabbly ~1 day refrigerated beforehand)
+2 tbsp toasted sesame oil
+
+4 cups of pre-cooked rice (roughly 1 and 1/3 cups UNCOOKED...refrigerate overnight beforehand [important step!])
 
 1 pound / chicken breast, diced
 
 12oz bag mixed frozen peas and carrots
 
-1/4 cup chopped onions
+1/2 cup chopped onions
 
 4 scallions chopped
 
-2.5 tsp minced garlic
+3 tsp minced garlic
 
 2 scrambled eggs
 
-4 tbsp coconut aminos (low sodium / non-soy alternative to soy sauce)
+4 tbsp ("Coconut Secret" brand) coconut aminos (best low sodium / non-soy alternative to soy sauce)
 
--Add 1 tbsp olive oil / 2 tsp sesame oil to skillet / wok with medium heat, saute the cubed chicken until fully cooked, then remove / set chicken aside
+-Coat inside the skillet with the olive oil (including the inner-sides), then add the sesame oil in the middle of the skillet
 
--Add remaining 1 tbsp olive oil / 2 tsp sesame oil to skillet / wok with medium heat, saute the scallions / onions / minced garlic / peas / carrots for 2 minutes, push to side of pan, and fully cook the scrambled eggs next to the veggies
+-Add the cubed chicken to skillet, saute on medium heat until fully cooked, and then remove / set chicken aside (out of the skillet [in a seperate bowl])
 
--Put the chicken back in the skillet / wok, add the rice and coconut aminos too, then mix everything together for a minute or two
+-Add the scallions / onions / minced garlic / peas / carrots to skillet, and saute on meduim heat for 5-7 minutes
 
-Above recipe amounts makes ~4 servings. Double / triple these portions, if you want to store multiple meals in the freezer.
+-Add the cooked chicken / pre-cooked rice / scrambled eggs / coconut aminos to skillet, and saute on meduim heat / mix everything THOROUGHLY together for 5-7 more minutes
+
+Above recipe amounts makes ~4 servings (fits in tupperware mentioned atop this documentation, for freezing / leftovers). Double / triple these portions, if you want to store MANY meals in the freezer for later.
 
 ========================================================================================================================
 
