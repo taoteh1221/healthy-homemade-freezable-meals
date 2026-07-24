@@ -80,15 +80,15 @@ Bannana Bread
 
 1/2 cup oatmeal flour
 
+1/4 cup sugar
+
 3 tsp baking powder
 
-1 tsp cinnamon
+2 tsp cinnamon
+
+1 tsp nutmeg
 
 1/2 tsp salt
-
-1/2 tsp nutmeg
-
-1/4 cup sugar
 
 1/4 cup extra virgin olive oil
 
@@ -336,9 +336,9 @@ Turkey / Chicken Chili
 
 3/4 cup salt free taco seasoning
 
-1/2 cup chili powder
+3/4 cup chili powder
 
-1/3 cup granulated onions
+1/2 cup granulated onions
 
 6 cups water (add more, IF too thick to stir well)
 
@@ -385,13 +385,13 @@ IMPORTANT NOTE: Below ingredient AMOUNTS require a VERY LARGE saute pan / wok!
 
 4 tbsp ("Coconut Secret" brand) coconut aminos (best low sodium / non-soy alternative to soy sauce)
 
--Coat inside the skillet with the olive oil (including the inner-sides), then add the sesame oil in the middle of the skillet
+-Coat inside the skillet with the olive oil (including the inner-sides)
 
 -Add the cubed chicken to skillet, saute on medium heat until fully cooked, and then remove / set chicken aside (out of the skillet [in a seperate bowl])
 
--Add the scallions / onions / minced garlic / peas / carrots to skillet, and saute on meduim heat for 5-7 minutes
+-Add the sesame oil in the middle of the skillet, then add the scallions / onions / minced garlic / peas / carrots to skillet, saute on meduim heat for 5-7 minutes, and push to one side of the skillet (keeping it in the skillet).
 
--Add the cooked chicken / pre-cooked rice / scrambled eggs / coconut aminos to skillet, and saute on meduim heat / mix everything THOROUGHLY together for 5-7 more minutes
+-Add the cooked chicken / pre-cooked rice / scrambled eggs / coconut aminos to skillet, and saute on meduim heat / mix everything THOROUGHLY together for 5-7 more minutes (or longer if needed)
 
 Above recipe amounts makes ~4 servings (fits in tupperware mentioned atop this documentation, for freezing / leftovers). Double / triple these portions, if you want to store MANY meals in the freezer for later.
 
