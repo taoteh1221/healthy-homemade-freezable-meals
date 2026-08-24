@@ -82,9 +82,9 @@ Bannana Bread
 
 1/4 cup sugar
 
-3 tsp baking powder
+1 tbsp cinnamon
 
-2 tsp cinnamon
+4 tsp baking powder
 
 1 tsp nutmeg
 
@@ -92,7 +92,7 @@ Bannana Bread
 
 1/4 cup extra virgin olive oil
 
-1 and 1/4 cup fat free milk
+1 and 1/2 cup fat free milk
 
 2 LARGE bannanas (AGED ~1 week REFRIGERATED, UNTIL PEEL IS BROWN)
 
@@ -126,6 +126,8 @@ Corn Bread
 1 and 3/4 cup fat free milk
 
 1/3 cup extra virgin olive oil
+
+1/2 cup HEAPING cup blueberries
 
 -Mix dry ingredients, then mix in wet ingredients
 
