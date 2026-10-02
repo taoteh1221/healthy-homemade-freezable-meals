@@ -92,7 +92,7 @@ Bannana Bread
 
 1/4 cup extra virgin olive oil
 
-1 and 1/2 cup fat free milk
+1 and 3/4 cup fat free milk
 
 2 LARGE bannanas (AGED ~1 week REFRIGERATED, UNTIL PEEL IS BROWN)
 
@@ -106,8 +106,11 @@ Bannana Bread
 
 -Pour wet ingredients in with dry ingredients, and mix well
 
--Grease pan lightly with extra virgin olive oil, pour in evenly / flatten, and bake 40 minutes @ 300 degrees
+-Let sit in pan at least 20 minutes before putting in the oven, so the bread rises to be more fluffy
 
+-Grease pan lightly with extra virgin olive oil, pour in evenly / flatten
+
+-Bake 40 minutes @ 300 degrees
 
 =======================================================================================================================
 Corn Bread
@@ -123,15 +126,19 @@ Corn Bread
 
 1 teaspoon salt
              
-1 and 3/4 cup fat free milk
+2 cups fat free milk
 
 1/3 cup extra virgin olive oil
 
 1/2 cup HEAPING cup blueberries
 
--Mix dry ingredients, then mix in wet ingredients
+-Pour wet ingredients in with dry ingredients, and mix well
 
--Grease pan lightly with extra virgin olive oil, pour in evenly / flatten, and bake 40 minutes @ 300 degrees
+-Let sit in pan at least 20 minutes before putting in the oven, so the bread rises to be more fluffy
+
+-Grease pan lightly with extra virgin olive oil, pour in evenly / flatten
+
+-Bake 40 minutes @ 300 degrees
 
 =======================================================================================================================
 Small Serving of Quick Rice with Seasonings
@@ -313,7 +320,7 @@ OPTIONAL - 16oz frozen corn OR diced carrots (SKIP 1 BAG OF SPINACH ABOVE, OR IT
 -Serve ~2 cups per serving in a bowl
 
 =======================================================================================================================
-Turkey / Chicken Chili
+Turkey / Chicken Chili Chop Suey
 =======================================================================================================================
 
 2 tbsp extra virgin olive oil
@@ -342,7 +349,9 @@ Turkey / Chicken Chili
 
 1/2 cup granulated onions
 
-6 cups water (add more, IF too thick to stir well)
+8 cups water (add more, IF too thick to stir well)
+
+8oz box of macaroni (ADDED SEPERATELY, SEE DIRECTIONS BELOW)
 
 ----
 
@@ -356,7 +365,9 @@ Turkey / Chicken Chili
 
 -Cook on high for 4 hours, stirring WELL (to evenly cook the rice, which can settle to bottom) every ~30 minutes ideally
 
--Serve ~2 cups per serving in a bowl, crumble 1oz of low sodium tortilla chips over the meal, and mix into it
+-Boil 8oz macaroni in a pot, with 8 cups water, for ~15 minutes on high heat
+
+-AFTER CROCKPOT COOKING IS COMPLETE, add 1/2 cup of macaroni in bottom of each storage container / bowl, before adding ~2 cups of crockpot meal on top
 
 =======================================================================================================================
 Chicken Fried Rice
@@ -385,7 +396,7 @@ IMPORTANT NOTE: Below ingredient AMOUNTS require a VERY LARGE saute pan / wok!
 
 2 scrambled eggs
 
-4 tbsp ("Coconut Secret" brand) coconut aminos (best low sodium / non-soy alternative to soy sauce)
+5 tbsp ("Coconut Secret" brand) coconut aminos (best low sodium / non-soy alternative to soy sauce)
 
 -Coat inside the skillet with the olive oil (including the inner-sides)
 
@@ -396,6 +407,39 @@ IMPORTANT NOTE: Below ingredient AMOUNTS require a VERY LARGE saute pan / wok!
 -Add the cooked chicken / pre-cooked rice / scrambled eggs / coconut aminos to skillet, and saute on meduim heat / mix everything THOROUGHLY together for 5-7 more minutes (or longer if needed)
 
 Above recipe amounts makes ~4 servings (fits in tupperware mentioned atop this documentation, for freezing / leftovers). Double / triple these portions, if you want to store MANY meals in the freezer for later.
+
+=======================================================================================================================
+Chicken Mac and Cheese
+=======================================================================================================================
+
+1  breast / pound boneless chicken
+
+8oz box of macaroni
+
+8oz velveeta 2% milk
+
+12oz bag frozen peas and carrots
+
+1 cup fat free milk
+
+5 cups water
+
+2 tbsp whole wheat flour
+
+-Mix whole wheat flour and milk in a small skillet
+
+-Cut velveeta into cubes, add to skillet
+
+-Stir under medium-high heat, until velveeta is mixed in, and set aside
+
+-Cut chicken into bite-size pieces
+
+-Add macaroni / veggies / chicken in a large pot, add 5 cups water, and
+boil / stir for 10-15 minutes on high heat
+
+-Drain into a colander in the sink, wait a minute to drain well
+
+-Pour back into the same pot, add the velveeta sauce, and mix well
 
 ========================================================================================================================
 
