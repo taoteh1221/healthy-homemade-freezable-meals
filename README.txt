@@ -96,7 +96,7 @@ Bannana Bread
 
 2 LARGE bannanas (AGED ~1 week REFRIGERATED, UNTIL PEEL IS BROWN)
 
-1/2 cup HEAPING cup blueberries
+1/2 cup HEAPING cup (small wild Maine) blueberries
 
 1/2 cup LIGHTLY chopped nuts
 
@@ -130,7 +130,7 @@ Corn Bread
 
 1/3 cup extra virgin olive oil
 
-1/2 cup HEAPING cup blueberries
+1/2 cup HEAPING cup (small wild Maine) blueberries
 
 -Pour wet ingredients in with dry ingredients, and mix well
 
