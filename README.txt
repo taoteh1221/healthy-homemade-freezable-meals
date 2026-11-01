@@ -182,9 +182,9 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 18oz low sodium stuffing mix, OR 18 slices of whole wheat bread (cubed / seasoned / baked), OR half of each
 
-30oz russet potatoes, cut into quarters / eights, precooked by boiling 15 minutes
+40oz russet potatoes, cut into quarters, precooked by boiling 15 minutes
 
-32oz frozen cut green beans, OR frozen peas and carrots (2x 16oz frozen bags)
+32oz frozen cut green beans
 
 1/4 cup extra virgin olive oil (to grease up bottom / sides of crockpot)
 
@@ -192,7 +192,7 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 2 MEDIUM onions chopped
 
-8oz light sour cream
+16oz light sour cream
 
 1 cup fat free milk
 
@@ -202,27 +202,27 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 16oz low sodium chicken broth (OR SUBSTITUTE WITH 2 CUPS WATER)
 
-8 to 10 cups water (add more, IF too thick to stir well)
+~3 INITIAL cups water (add more, IF too thick to stir well)
 
-OPTIONAL: 1 cup rice (IF you want to slightly thicken everything)
-
--Cube the sliced bread, season with granulated garlic, and bake in oven / air fryer @ 300 degrees for 15 minutes
+-Cube the sliced bread (IF NOT USING BOXED STUFFING MIX), season with granulated garlic, and bake in oven / air fryer @ 300 degrees for 15 minutes
 
 -Oil bottom / sides of crock pot with the extra virgin olive oil
 
--Mix dry ingredients / spices / milk / sour cream in a bowl, then add to crockpot
+-Layer the veggies on bottom, and add chicken broth
 
--Evenly layer LARGE DICED chicken pices across bottom
+-Add the potatoes on top of the veggies
 
--Mix together cubed bread / stuffing mix, then evenly layer over the chicken
+-Layer chicken pieces on top of the potatoes
 
--Evenly layer the veggies on top of everything
+-Mix spices / milk / sour cream together in a bowl, then add as top layer
 
--Add the chicken broth and water as-needed, and stir well until fully mixed
+-IMPORTANT: Do NOT add the stuffing mix yet, that comes LATER!
 
--Cook on high for 4 hours, stirring well hourly or more (to evenly cook the rice, which can settle to bottom)
+-Mix everything well that is already in the crock pot, and stir every 30 minutes while cooking on high heat
 
--Serve ~2 cups per serving in a bowl, crumble 1oz of low sodium tortilla chips over the meal, and mix into it
+-AFTER EVERYTHING IN THE CROCK POT HAS COOKED ON HIGH HEAT FOR 4 HOURS, add the stuffing mix, along with 1 or 2 additional cups of water for good consistency, when mixing the stuffing into the rest of the ingredients (DON'T WATER IT DOWN TOO MUCH!).
+
+-Serve ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
 
 =======================================================================================================================
 Chicken Sausage Meatballs, OR Seasoned Large Bite-Sized Chunks
@@ -317,7 +317,7 @@ OPTIONAL - 16oz frozen corn OR diced carrots (SKIP 1 BAG OF SPINACH ABOVE, OR IT
 
 -Cook 4 hours on high. IF pasta still is NOT fully cooked, cook for an additional 30+ minutes / until pasta until fully cooked.
 
--Serve ~2 cups per serving in a bowl
+-Serve ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
 
 =======================================================================================================================
 Turkey / Chicken Chili Chop Suey
@@ -367,7 +367,7 @@ Turkey / Chicken Chili Chop Suey
 
 -Boil 8oz macaroni in a pot, with 8 cups water, for ~15 minutes on high heat
 
--AFTER CROCKPOT COOKING IS COMPLETE, add 1/2 cup of macaroni in bottom of each storage container / bowl, before adding ~2 cups of crockpot meal on top
+-AFTER CROCKPOT COOKING IS COMPLETE, add 1/2 cup of macaroni in bottom of each storage container / bowl, before adding ~1 and 1/2 cups of crockpot meal on top
 
 =======================================================================================================================
 Chicken Fried Rice
@@ -406,6 +406,8 @@ IMPORTANT NOTE: Below ingredient AMOUNTS require a VERY LARGE saute pan / wok!
 
 -Add the cooked chicken / pre-cooked rice / scrambled eggs / coconut aminos to skillet, and saute on meduim heat / mix everything THOROUGHLY together for 5-7 more minutes (or longer if needed)
 
+-Serve ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
+
 Above recipe amounts makes ~4 servings (fits in tupperware mentioned atop this documentation, for freezing / leftovers). Double / triple these portions, if you want to store MANY meals in the freezer for later.
 
 =======================================================================================================================
@@ -440,6 +442,8 @@ boil / stir for 10-15 minutes on high heat
 -Drain into a colander in the sink, wait a minute to drain well
 
 -Pour back into the same pot, add the velveeta sauce, and mix well
+
+-Serve ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
 
 ========================================================================================================================
 
