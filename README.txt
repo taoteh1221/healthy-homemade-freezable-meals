@@ -180,7 +180,7 @@ Chicken and Stuffing Casserole
 
 MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-pot-chicken-stuffing-casserole/
 
-18oz low sodium stuffing mix, OR 18 slices of whole wheat bread (cubed / seasoned / baked), OR half of each
+24oz low sodium stuffing mix, OR 24 slices of whole wheat bread (cubed / seasoned / baked), OR half of each
 
 40oz russet potatoes, cut into quarters, precooked by boiling 15 minutes
 
@@ -208,21 +208,21 @@ MODIFIED FROM (thanks for the awesome recipe!): https://icookfortwo.com/crock-po
 
 -Oil bottom / sides of crock pot with the extra virgin olive oil
 
--Layer the veggies on bottom, and add chicken broth
+-Layer the veggies on bottom, and add the chicken broth and water
 
 -Add the potatoes on top of the veggies
 
 -Layer chicken pieces on top of the potatoes
 
--Mix spices / milk / sour cream together in a bowl, then add as top layer
+-Mix spices / milk / sour cream together in a bowl, then add as top layer (SKIP THE STUFFING MIX, SEE BELOW)
 
 -IMPORTANT: Do NOT add the stuffing mix yet, that comes LATER!
 
 -Mix everything well that is already in the crock pot, and stir every 30 minutes while cooking on high heat
 
--AFTER EVERYTHING IN THE CROCK POT HAS COOKED ON HIGH HEAT FOR 4 HOURS, add the stuffing mix, along with 1 or 2 additional cups of water for good consistency, when mixing the stuffing into the rest of the ingredients (DON'T WATER IT DOWN TOO MUCH!).
+-AFTER EVERYTHING IN THE CROCK POT HAS COOKED ON HIGH HEAT FOR 4 HOURS, add 1/2 cup of stuffing mix in bottom of each storage container / bowl, before adding ~1 and 1/2 cups of crockpot meal on top
 
--Serve ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
+Serving Size: ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
 
 =======================================================================================================================
 Chicken Sausage Meatballs, OR Seasoned Large Bite-Sized Chunks
@@ -317,7 +317,7 @@ OPTIONAL - 16oz frozen corn OR diced carrots (SKIP 1 BAG OF SPINACH ABOVE, OR IT
 
 -Cook 4 hours on high. IF pasta still is NOT fully cooked, cook for an additional 30+ minutes / until pasta until fully cooked.
 
--Serve ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
+Serving Size: ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
 
 =======================================================================================================================
 Turkey / Chicken Chili Chop Suey
@@ -361,13 +361,17 @@ Turkey / Chicken Chili Chop Suey
 
 -Add the mixed seasoning into the meat (IF grinding your own meat, add it while grinding), then brown in skillet (with the chopped onions / green peppers, if desired)
 
--Add everything into crock pot
+-Add everything into crock pot (EXCEPT THE MACARONI, SEE BELOW)
+
+-IMPORTANT: Do NOT add the macaroni, that comes LATER!
 
 -Cook on high for 4 hours, stirring WELL (to evenly cook the rice, which can settle to bottom) every ~30 minutes ideally
 
--Boil 8oz macaroni in a pot, with 8 cups water, for ~15 minutes on high heat
+-Boil 8oz macaroni in a pot, with 8 cups water, for ~15 minutes on high heat, then set aside to cool (after draining into a colander)
 
--AFTER CROCKPOT COOKING IS COMPLETE, add 1/2 cup of macaroni in bottom of each storage container / bowl, before adding ~1 and 1/2 cups of crockpot meal on top
+-AFTER EVERYTHING IN THE CROCK POT HAS COOKED ON HIGH HEAT FOR 4 HOURS, add 1/2 cup of macaroni in bottom of each storage container / bowl, before adding ~1 and 1/2 cups of crockpot meal on top
+
+Serving Size: ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
 
 =======================================================================================================================
 Chicken Fried Rice
@@ -406,9 +410,9 @@ IMPORTANT NOTE: Below ingredient AMOUNTS require a VERY LARGE saute pan / wok!
 
 -Add the cooked chicken / pre-cooked rice / scrambled eggs / coconut aminos to skillet, and saute on meduim heat / mix everything THOROUGHLY together for 5-7 more minutes (or longer if needed)
 
--Serve ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
+Above recipe amounts makes ~4 servings. Double / triple these portions, if you want to store MANY meals in the freezer for later.
 
-Above recipe amounts makes ~4 servings (fits in tupperware mentioned atop this documentation, for freezing / leftovers). Double / triple these portions, if you want to store MANY meals in the freezer for later.
+Serving Size: ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
 
 =======================================================================================================================
 Chicken Mac and Cheese
@@ -442,6 +446,8 @@ boil / stir for 10-15 minutes on high heat
 -Drain into a colander in the sink, wait a minute to drain well
 
 -Pour back into the same pot, add the velveeta sauce, and mix well
+
+Above recipe amounts makes ~4 servings. Double / triple these portions, if you want to store MANY meals in the freezer for later.
 
 -Serve ~2 cups per serving in a bowl, OR 500ML tupperware stacking containers in freezer
 
